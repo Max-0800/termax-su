@@ -1,1 +1,1 @@
-Any damage or misuse of this project is none of my responsibility and there for not my problem.
+everything that happens is not my responsibility and is as your problem, not mine
